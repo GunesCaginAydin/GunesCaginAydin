@@ -1,3 +1,3 @@
-Mechanical engineer by trade who's currently invested in neurocomputational / cognitive modeling.
+Computational neuroscientist: currently working heavily on functional dynamical analysis of whole brain models!
 
-For any questions and collaboration requests, don't hesitate to contact me! Especially on neuroscience :)
+For any questions and proposals, don't hesitate to contact!
